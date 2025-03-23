@@ -94,5 +94,4 @@ This book mixes mindset, motivation, and practical steps to help you attract suc
 
 ---
 
-Would you like the next recommendation to be another classic like The 7 Habits of Highly Effective People or something modern and trendy?
 
